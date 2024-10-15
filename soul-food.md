@@ -2,7 +2,7 @@
 "Soul Food"
 
 I spent
-the whole day
+my whole day
 feeling out of place.
 But then,
 a simple
