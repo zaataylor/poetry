@@ -15,7 +15,7 @@ There are just so many birds inside, but none of them can take flight.
 They're all tangled up with each other, feathery webs of hollow bones linked together,
 woven intricately like a nest within a nest.
 
-Mangled flight patterns could take me to Canada or Columbia, I know not which;
+Mangled flight patterns could take me to Canada or Colombia, I know not which;
 I'm just following the ululations of my flock,
 that starling song of resonant harmonies and undertones that slices through the air
 like a newly-crowned chick taking its first perilous flight.
