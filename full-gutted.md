@@ -8,7 +8,7 @@ Whatever is the
     influence of those things which I am under,
 Whatever
     outrages me...
-Still the word turns,
+Still the world turns,
 New breaths are breathed into the collective consciousness, and
 A subtle hymn, bare and full-gutted, arises from my belly,
     that bubbling cauldron of miscellaneous foodstuffs and
